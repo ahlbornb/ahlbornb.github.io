@@ -10,3 +10,5 @@ Jackie Chan (born 1954 as Chan Kong-sang) is a Hong Kong actor, film director, p
 
 > \[Bruce Lee\] influenced me a lot. I admired him, and the way he would talk. 
 > He could even speak English. Everyone thought he was a god.
+
+![Jackie Chan 2005 by Tony Shek CC BY-SA](https://commons.wikimedia.org/wiki/File:Jackie_Chan_TIFF_2005.jpg)
